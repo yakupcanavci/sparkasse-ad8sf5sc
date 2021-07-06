@@ -1,1 +1,0 @@
-# sparkasse-ad8sf5sc
